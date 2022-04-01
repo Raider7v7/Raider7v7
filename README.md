@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Raider7v7
 - 👀 I’m interested in ...la programación y el anime
 - 🌱 I’m currently learning ...
-- 💞️ mis colaboraciones en  ...animepelix.com ironanime.com ironanime
+- 💞️ mis colaboraciones en  ...animepelix.com ironanime.com ironanime  monoke
 - 📫 How to reach...
 
 <!---
